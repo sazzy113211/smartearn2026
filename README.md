@@ -1,0 +1,2 @@
+# smartearn2026
+A CRYPTO PLATFORM
